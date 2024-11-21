@@ -8,9 +8,17 @@
 لا تنسى زيارة موقع هافانا   https://havanatextile.com/  
 
 تسوق الآن جميع اقمشة متجر هافانا  https://havanatextile.com/product-category/جميع-الأقمشة/
+
+
 تسوق الآن أقمشة الكنب          https://havanatextile.com/product-category/اقمشة-كنب/
+
+
 تسوق الآن اقمشة المخدات         https://havanatextile.com/product-category/اقمشة-مخدات/
+
+
 تسوق الآن اقمشة المفروشات       https://havanatextile.com/product-category/اقمشة-المفروشات/
+
+
 تسوق الأن اقمشة مضادة للسوائل    https://havanatextile.com/product-category/أقمشة-مقاومة-للماء/
 
 
